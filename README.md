@@ -1,5 +1,5 @@
 # 💫 About Me:
-CGI as Senior Data Engineer
+CEO at AlcianBlue Data & AI Consulting AB
 
 
 ## 🌐 Socials:
