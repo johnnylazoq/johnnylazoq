@@ -1,5 +1,5 @@
 # 💫 About Me:
-CEO at AlcianBlue Data & AI Consulting AB
+Founder & CEO at AlcianBlue Data & AI Consulting AB
 
 
 ## 🌐 Socials:
